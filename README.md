@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **aamir060601@gmail.com**
 
-- ⚡ Hobbies **Mathematics & Motorsports**
+- ⚡ **Hobbies Mathematics & Motorsports**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
